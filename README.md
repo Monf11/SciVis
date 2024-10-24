@@ -1,1 +1,1 @@
-Approfondimento sui linguaggi di programmazione, la loro popolarità, anche nel corso della storia recente, sia tra gli utenti effettivi che come repository di github, e le loro particolarità.
+https://lol.secure.dyn.riotcdn.net/channels/public/x/installer/current/live.euw.exe
